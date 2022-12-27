@@ -1,6 +1,3 @@
-Cybersecurity Administrator
----------------------------
-
 I am a cybersecurity & software development professional. Let's not forget I'm also a part time YouTuber. I want to teach the World how to code...the fun way!
 
 * 🌍  I'm based in Wisconsin
